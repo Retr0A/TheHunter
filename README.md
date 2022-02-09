@@ -1,3 +1,3 @@
-# CoOl GaMe FoR BoZoS
+# The Hunter
 
 Game
